@@ -1,0 +1,2 @@
+# Adaptation
+Adaptation © describes a player who goes out to find food in order to survive, but is attacked by various enemies of his kind. So, he has to find a way to remain alive in spite of enemy attacks. This game serves as an illustration of how living things live in adverse conditions and in constant danger of predators. Their Creator, foreseeing that these things would take place have given them the ability to adapt to their environment
